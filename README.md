@@ -6,3 +6,5 @@ Suri Villarpando Jhonathan
 
 Cuiza Muraña Ramiro David
 
+Mamani Cazas Adrian
+
